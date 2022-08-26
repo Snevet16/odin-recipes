@@ -1,0 +1,1 @@
+This project is part of the course I am persuing, however, I'm interested to do what i can with my current abilties and it would be enjoyable to return to the project and refine my work as my knowlege improves. 
